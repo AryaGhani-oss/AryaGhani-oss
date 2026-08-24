@@ -2,7 +2,7 @@
 
 # Halo semua! 
 
-Perkenalkan nama saya **Gilang Ramadhan**.<br>
+Perkenalkan nama saya **Arya Ghani Asshidik**.<br>
 
 Saya seorang **Mahasiswa** di **Institut Teknologi Sepuluh Nopember**.<br>
 
